@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on all projects---I'll probably have a million questions....
 
-- 📫 How to reach me contact@maximanalytico.net
+- 📫 How to reach me avail@macinyc.com  
 
 <!---
 nycpowerbrokerage/nycpowerbrokerage is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
